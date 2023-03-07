@@ -1,2 +1,1 @@
-# el-cratf
-No se
+# el-cratf me gusta quiero aprender mucho
